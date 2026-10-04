@@ -1,0 +1,2 @@
+# premium-pin-gauge-001-pin-gauge-set-hole-size-chec
+Tired of fumbling through a drawer of mystery pins or guessing hole sizes mid-project? Your pin gauge set is only as useful as the system you use to track it.  The Pin Gauge Set &amp; Hole Size Check Craft Hub transforms your Notion workspace into a centralized command center for all your pin gauge and hole size data. No more lost measurements, mismatc
